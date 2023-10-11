@@ -15,3 +15,5 @@
 📧 Email: [sirikondamanoj03@gmail.com]
 
 📱 LinkedIn: [www.linkedin.com/in/manoj-sirikonda]
+
+YouTube: [https://youtube.com/@SirikondaManoj?si=LAWxOisn57RfxVfq]
